@@ -1,6 +1,6 @@
 #**My Portfolio**
 #**ALEXA**
-#**BSTI student, tahimik lang sa umpisa and yapper/listener. Fav ulam ko is spicy garlic buttered shrimp**
+#**BSTI student, tahimik lang sa umpisa and yapper/listener**
 
 👩‍🎓student
 
@@ -8,7 +8,7 @@
  <details>
   
 [my dream country ] (https://en.wikipedia.org/wiki/Amsterdam)
-Born on May 03 2027, Mabait, maarte, faithful, hobbies ko makinig ng music and manood ng vlogs, grade 6 softball player, etc.
+Born on May 03 2027, Mabait, maarte, faithful, hobbies ko makinig ng music and manood ng vlogs, grade 6 softball player, Favorite ulam ko is spicy garlic buttered shrimp, etc.
 
 ## goals 
 -have a happy family
