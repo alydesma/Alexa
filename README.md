@@ -4,5 +4,11 @@
 
 ##*About my self*
  <details>
-Goals
--maraming pera
+  
+  Me
+Mabait, faithful, etc.
+  
+  Goals
+-more money 
+-travel around the world
+-peaceful life
