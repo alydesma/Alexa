@@ -5,10 +5,13 @@
 ##*About my self*
  <details>
   
-  Me
-Mabait, faithful, etc.
+[dream country ko] (https://en.wikipedia.org/wiki/Amsterdam)
+Mabait, maarte, faithful, hobbies ko makinig ng music and manood ng vlogs.
   
-  Goals
+  My Goals
 -more money 
 -travel around the world
 -peaceful life
+-makagraduate 
+-maging rich tita
+-successful 
