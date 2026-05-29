@@ -1,10 +1,11 @@
 #**My Portfolio**
-#**ALEXA**
-#**BSTI student, tahimik lang sa umpisa and yapper/listener**
+#**Alexa Joy Ledesma**
+#**BSTI**
 
 👩‍🎓student
 
-##*About my self*
+#**About my self**
+
  <details>
   
 [my dream country ] (https://en.wikipedia.org/wiki/Amsterdam)
